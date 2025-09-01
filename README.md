@@ -3,7 +3,7 @@
 ## Group Members
 - Afiako Benedict- 01241162b
 - Thomas Osei Mensah-01240620b
-- Frank 
+- Frank torgbor 01246621B
 - Kwaku Agyeman	Yeboah	01246580B
 
 ## Description
